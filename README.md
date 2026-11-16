@@ -1,2 +1,0 @@
-# DesignPro
-DesignPro UX Research
